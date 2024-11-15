@@ -2,4 +2,4 @@
 - 🌱 I’m currently studying Mathematics and Computer Science
 - 📫 Reach me via email: maria.martisca45@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact about me: I have a graphic ilustrator diploma from <<Școala Populară de Arte și Meserii "Tiberiu Brediceanu">>
+
